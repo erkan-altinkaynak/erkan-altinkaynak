@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @erkan-altinkaynak
+- 👋 Hi, I’m Erkan.
